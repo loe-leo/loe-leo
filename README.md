@@ -15,7 +15,8 @@ I’m expanding my knowledge in:
 - **Data Science**  
 
 📫 **How to Reach Me:**  
-Feel free to email me at **siravichu@gmail.com**.
+- Email: **siravichu@gmail.com**  
+- LinkedIn: [Siravich Umpornsrisupap](https://www.linkedin.com/in/siravich-umpornsrisupap-a585ab224/)  
 
 ⚡ **Fun Fact:**  
 Generalists thrive in versatility, and that's what makes every day exciting for me!
